@@ -9,3 +9,5 @@
 4. Genshin Impact est également salué pour son monde ouvert expansif et visuellement époustouflant, composé de sept régions distinctes, chacune inspirée par différentes cultures et éléments mythologiques. Le jeu propose un système de gacha pour obtenir de nouveaux personnages et armes, ainsi que des quêtes, des donjons et d'autres activités pour les joueurs à explorer et à compléter.
 
 5. L'une des particularités de Genshin Impact est son modèle économique free-to-play, avec des options d'achat intégrées pour les joueurs souhaitant acquérir des personnages ou des objets plus rapidement. Le jeu a gagné en popularité en raison de sa gratuité, de sa qualité graphique et de son gameplay engageant.
+
+6. Gensin c'est trop bien !
