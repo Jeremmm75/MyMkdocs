@@ -14,4 +14,6 @@ La banane est le fruit comestible du bananier, une plante herbacée de la famill
 
 6. **Production mondiale :** Les bananes sont cultivées dans de nombreuses régions tropicales et subtropicales du monde. Les principaux producteurs mondiaux de bananes comprennent des pays d'Amérique latine, d'Afrique et d'Asie.
 
+7. La banane est délicieuse !
+
 En résumé, la banane est un fruit populaire et polyvalent, apprécié pour sa saveur sucrée, sa praticité en tant que collation, et sa valeur nutritionnelle. Elle joue un rôle important dans l'alimentation quotidienne de nombreuses personnes à travers le monde.
